@@ -1,9 +1,9 @@
 Please Update your App for Version Configs
-Latest Version: 1.5.3
-ADDED:
-> UDP SINGAPORE
-> UDP GERMANY
-> GAMING SERVERS for PROMO
-> GAMING SERVERS for DTAC TRUE
+
+ALL SERVERS ARE NOW ONLINE
+
+NO NEED UPDATE!!
+
+THANK YOU FOR TRUSTING US..
 
 TELEGRAM: https://t.me/Ce7venTunnel
