@@ -1,4 +1,4 @@
-Please Update your App for Version Configs
+DONT FORGET TO RATE IN PLAYSTORE
 
 ALL SERVERS ARE NOW ONLINE
 
