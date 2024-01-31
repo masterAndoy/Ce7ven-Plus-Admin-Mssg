@@ -4,7 +4,11 @@
 
 THANK YOU FOR PATRIONIZING THIS APP
 
-ALL SERVERS ARE NOW UPDATED!!
+For More Questions and Updates!!
+
+📌Teletegram 👉Ce7venTunnelPlus
+
+📌WhatsApp +639294800827
 
 "YOUR CONNECTION IS OUR PRIORITY"
 
