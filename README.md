@@ -2,6 +2,8 @@
 
 👉👉IMPORTANT!!!
 
+🍻If it happen that the app is looking for USERNAME amd PASSWORD. pleaee clear data the app amd reupdate or reinstall the app in playstore...
+
 THANK YOU FOR PATRIONIZING THIS APP
 
 For More Questions and Updates!!
