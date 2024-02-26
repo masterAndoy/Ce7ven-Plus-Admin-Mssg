@@ -1,8 +1,4 @@
-!!!!! READ READ READ !!!!!
-
-👉👉IMPORTANT!!!
-
-🍻If it happen that the app is looking for USERNAME amd PASSWORD. pleaee clear data the app amd reupdate or reinstall the app in playstore...
+HI!! HOW IS YOUR CONNECTION? For Better Performance. USE ONLY LEGIT APP FROM PLAYSTORE.. WACTHING ADS REALLY HELP ME TO PUT VERY GOOD SERVERS.. 
 
 THANK YOU FOR PATRIONIZING THIS APP
 
