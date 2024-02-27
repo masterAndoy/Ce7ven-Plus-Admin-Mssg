@@ -1,4 +1,8 @@
-HI!! HOW IS YOUR CONNECTION? For Better Performance. USE ONLY LEGIT APP FROM PLAYSTORE.. WACTHING ADS REALLY HELP ME TO PUT VERY GOOD SERVERS.. 
+🍻 CHEERS!! Always remember to use the legit APP. 
+
+👉NEW UPDATE FROM PLAYSTORE
+
+⭐ADDED CUSTOM SET-UP in Payload
 
 THANK YOU FOR PATRIONIZING THIS APP
 
@@ -7,9 +11,5 @@ For More Questions and Updates!!
 📌Teletegram 👉Ce7venTunnelPlus
 
 📌WhatsApp +639294800827
-
-"YOUR CONNECTION IS OUR PRIORITY"
-
-FOR CONCERNS, FOLLOW MY FACEBOOK ACCOUNT:
 
 https://www.facebook.com/petevalientejr?mibextid=ZbWKwL
