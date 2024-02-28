@@ -2,14 +2,14 @@
 
 👉NEW UPDATE FROM PLAYSTORE
 
-⭐ADDED CUSTOM SET-UP in Payload
+📌For Claro Guatemala TIPS!!
+👉Choose OVPN, Choose Claro Guatemala Server
+👉Choose Claro Guatemala Payload
+👉If  cant connect.. airplane mode 3x
 
 THANK YOU FOR PATRIONIZING THIS APP
 
 For More Questions and Updates!!
-
 📌Teletegram 👉Ce7venTunnelPlus
-
 📌WhatsApp +639294800827
-
-https://www.facebook.com/petevalientejr?mibextid=ZbWKwL
+📌https://www.facebook.com/petevalientejr?mibextid=ZbWKwL
