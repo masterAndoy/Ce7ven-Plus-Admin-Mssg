@@ -1,11 +1,4 @@
-🍻 CHEERS!! Always remember to use the legit APP. 
-
-👉NEW UPDATE FROM PLAYSTORE
-
-📌For Claro Guatemala TIPS!!
-👉Choose OVPN, Choose Claro Guatemala Server
-👉Choose Claro Guatemala Payload
-👉If  cant connect.. airplane mode 3x
+📌 Wondering why you cant watch ads? Dont worry we are doing our best to fix it now. New update in playstore soon to fix the issues..
 
 THANK YOU FOR PATRIONIZING THIS APP
 
